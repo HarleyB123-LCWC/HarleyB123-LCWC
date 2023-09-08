@@ -6,4 +6,4 @@
 2. **I play Cricket🏏 and love other sports ⚽**
 3. **I support Newcastle United FC⚽**
 4. **I love gaming in my free time🎮**
-5. **I Currently Work at Joe Bananas👷**
+5. **I Currently Work Part time at Joe Bananas/Shakers👷**
