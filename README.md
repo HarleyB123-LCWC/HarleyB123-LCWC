@@ -1,4 +1,4 @@
-#**Hello, I'm Harley Bowness (HarleyB123). I am currently studying at Lakes College Doing a T Level in Digital**
+# **Hello, I'm Harley Bowness (HarleyB123). I am currently studying at Lakes College Doing a T Level in Digital**
 
 > ***Here are some things i like to do:***
 
